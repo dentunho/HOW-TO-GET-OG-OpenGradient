@@ -1,5 +1,5 @@
 
-HOW TO GET OG OpenGradient
+
 # 🌟 How to Get OG Role – OpenGradient Guide
 
 This guide explains how you can obtain the **OG Role** in the OpenGradient community.
