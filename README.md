@@ -1,7 +1,7 @@
 
 
 # 🌟 How to Get OG Role – OpenGradient Guide
-
+![Image Alt](https://github.com/dentunho/HOW-TO-GET-OG-OpenGradient/blob/2b939e3ff0f5a52f19045e782f6aac40ecb4e38c/HOW%20TO%20GET%20OG%20open.png)
 This guide explains how you can obtain the **OG Role** in the OpenGradient community.
 
 
@@ -18,7 +18,7 @@ Ways to gain level:
 - Help other members
 - Stay active daily in the server
 
-
+![Image Alt](https://github.com/dentunho/HOW-TO-GET-OG-OpenGradient/blob/2b939e3ff0f5a52f19045e782f6aac40ecb4e38c/opengradient_cover_1740116532.webp)
 
 ### 2️⃣ Post 3 OpenGradient Related Photos Daily
 You must post **3 pieces of content every day** related to OpenGradient.
@@ -32,7 +32,7 @@ Examples of content:
 
 Consistency is very important.
 
-
+![Image Alt](https://github.com/dentunho/HOW-TO-GET-OG-OpenGradient/blob/2b939e3ff0f5a52f19045e782f6aac40ecb4e38c/9661.t8dyy4.webp)
 ### 3️⃣ Experience the Twin Fun App
 You must try the **Twin Fun application** and interact with it.
 
@@ -41,7 +41,7 @@ Possible actions:
 - Explore features
 - Share feedback with the community
 
----
+
 
 ## 🚀 Tips to Get OG Faster
 
